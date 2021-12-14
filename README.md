@@ -1,2 +1,1 @@
-Contact details:
-Discord: ecstasy#2136
+bigfloyd.shop
