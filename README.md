@@ -1,1 +1,1 @@
-Coding service: https://discord.gg/p4eZwWN4gb
+Coding service: https://discord.gg/yzt8zNZmnd
